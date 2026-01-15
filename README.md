@@ -1,1 +1,0 @@
-# Makarov-G_GUN-42
